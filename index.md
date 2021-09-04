@@ -14,8 +14,8 @@
 - Favorite color: orange 🔶
 - My iron levels: low ♟️
 - Dancing: queen 👯‍♀️
-- Seven: teen
+- Seven: teen 
 - Feel the beat from the tambour: ine
 - Oh: yeah
 
-  (I'm actually 18 but I love to dance)
+  (I'm actually 18)
